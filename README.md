@@ -79,7 +79,7 @@ I focus on:
 ## 📫 Contact
 
 * LinkedIn: 
-* Email: rfbaig97@gmail.com
+* Email: rabibaig97@gmail.com
 
 
 <!--
